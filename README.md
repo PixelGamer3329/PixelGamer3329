@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PixelGamer3329
 - 👀 I’m interested in gaming and Discord managing
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning Quadratic Functions
 - 📫 How to reach me:
   * Discord: https://discord.gg/U7CGr2cU3N Username: Pixld#3329
 
